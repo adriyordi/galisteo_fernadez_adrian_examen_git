@@ -1,1 +1,0 @@
-# galisteo_fernadez_adrian_examen_git
